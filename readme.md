@@ -1,6 +1,6 @@
 # Proyecto Heroes 
 
 ## Camila Guerrero
-## Brisa Guimaraz
+## Brisa Guimaraz, 22, San Miguel
 ## Roberto Zalazar
 ## Patricio Frascaroli
