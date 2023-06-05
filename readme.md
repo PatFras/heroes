@@ -3,4 +3,4 @@
 ## Camila Guerrero
 ## Brisa Guimaraz
 ## Roberto Zalazar
-## Patricio Frascaroli
+## Patricio Frascaroli - 32 años - Tandil, Bs As.
