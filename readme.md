@@ -2,5 +2,5 @@
 
 ## Camila Guerrero
 ## Brisa Guimaraz
-## Roberto Zalazar
+## Roberto Zalazar Salta, 40 
 ## Patricio Frascaroli
