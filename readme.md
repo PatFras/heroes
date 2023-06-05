@@ -2,5 +2,5 @@
 
 ## Camila Guerrero
 ## Brisa Guimaraz
-## Roberto Zalazar
-## Patricio Frascaroli - 32 años - Tandil, Bs As.
+## Roberto Zalazar Salta, 40 
+## Patricio Frascaroli- 32 años - Tandil, Bs As.
